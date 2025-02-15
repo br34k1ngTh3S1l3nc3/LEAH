@@ -10,5 +10,9 @@ I'm Leah, im 13 years old turning 14. I have adhd, mood swings, bipolar, anger i
 
 -------------------------
 
+Fandoms: The walking Dead, The Karate Kid, The Outsiders, Five Nights at Freddys, Minecraft, Squid Game, Sonic The Hedgehog,Ect
 
+---------------
+
+Interest: Guitar ( Acoustic + Electric + Bass), Drums, Singing, Drawing, Writing songs, painting.
 
